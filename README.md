@@ -118,3 +118,8 @@
 
 > 青年只有把自己的小我融入祖国的大我、人民的大我之中，与历史同向、与祖国同行、与人民同在，才能更好地实现人生价值、升华人生境界
 
+```
+Lastly edited by Melangez
+at Xi'an Jiaotong University  
+Dec 16, 2021
+```
